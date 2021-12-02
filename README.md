@@ -1,0 +1,1 @@
+# rikysm006.github.io
